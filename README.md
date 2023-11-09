@@ -8,6 +8,7 @@
 ## 📦 Download
 
 https://pan.baidu.com/s/1VtWH1zbrwbomFhMejaZw8Q?pwd=0326
+https://github.com/Lbeam08/XiaoChun_Res--Video-to-Dynamic-Wallpaper/releases/download/v1.0.0/XiaoChun_Res.-Video.to.Dynamic.Wallpaper.zip
 
 
 
